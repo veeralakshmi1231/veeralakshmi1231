@@ -12,4 +12,4 @@
 - Git & GitHub  
 
 ## 📫 Connect with me
-- 📧 Email: veeralakshmi12906@gmail.com
+- 📧 Email: veeralakshmi.9947@gmail.com
